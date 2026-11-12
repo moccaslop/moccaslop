@@ -1,5 +1,5 @@
 hi im mendel i am a person human i like to play pony town i like to draw and play i love my friends
-my fav things are littlest pet shop and benrey and iced coffe
+my fav things are littlest pet shop and benrey and iced coffe and sheeps
 i also like to play isaac and touhou
 im autistic so sorry if i say or do weird or raro things please tell me if i do
 
