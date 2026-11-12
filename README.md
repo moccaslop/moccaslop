@@ -1,3 +1,1 @@
 hi im mendel i am a person human i like to play pony town i like to draw and play i love my friends
-my favorite things are littlest petshop and benrey and binding of isaac and iced coffe and touhou and lemon demon and freehoun
-i am a autistic so sometimes i will not want to talk to you but it is because i am tired and not because i hat you. i hate online discourse over trivial things and i dont care about your stance on certain topics that dont affect real people and enviroment. if i ever say something weird or raro please tell me cause i probly didnt know i was being weird because im slow. thats all i love you bay
