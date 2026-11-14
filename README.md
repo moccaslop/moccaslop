@@ -11,4 +11,4 @@ im autistic so sorry if i say or do weird or raro things please tell me if i do
 <img width="320" height="320" alt="benrey" src="https://github.com/user-attachments/assets/9521e089-200e-41f8-b9d5-4256a8eaa8c7" />
 
 
-<img width="400" height="400" alt="images" src="https://github.com/user-attachments/assets/ae922d85-8794-46fb-987d-50b25822ffa2" />
+<img width="447" height="447" alt="images (1)" src="https://github.com/user-attachments/assets/c3536d35-262c-4541-8a2a-c7c3fd48a17c" />
