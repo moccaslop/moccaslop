@@ -6,3 +6,7 @@ im autistic so sorry if i say or do weird or raro things please tell me if i do
 <img width="320" height="320" alt="benrey" src="https://github.com/user-attachments/assets/9521e089-200e-41f8-b9d5-4256a8eaa8c7" />
 
 
+<img width="266" height="473" alt="bridget-guilty-gear" src="https://github.com/user-attachments/assets/bff45453-ae0b-42a6-a2a8-0ca0288a1ff7" />
+
+
+<img width="400" height="400" alt="images" src="https://github.com/user-attachments/assets/ae922d85-8794-46fb-987d-50b25822ffa2" />
