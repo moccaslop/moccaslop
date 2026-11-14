@@ -12,4 +12,4 @@ im autistic so sorry if i say or do weird or raro things please tell me if i do
 
 
 
-<img width="447" height="447" alt="images (2)" src="https://github.com/user-attachments/assets/49f7b203-3d72-4c3a-a183-99125528010a" />
+<img width="300" height="300" alt="images (2)" src="https://github.com/user-attachments/assets/49f7b203-3d72-4c3a-a183-99125528010a" />
